@@ -3,7 +3,7 @@ _or nick,,_
 
 i use the same username on most platforms ~~(staghearted on most, tumblr is stagheartedd.)~~
 
-my main interests as of lately have been disco elysium, postal franchise, dan vs, and hannibal nbc!
+my main interests as of lately have been disco elysium, postal franchise, cry of fear, and hannibal nbc!
 
 _more info is on my strawpage, which is linked :3_
 
